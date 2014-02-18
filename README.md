@@ -17,3 +17,6 @@ This is Yardenac's addition to the book.
 check out my addition afairbeginning.txt
 
 We are testing additions.
+
+
+If you have somewhere for her to stay yes :) how long ago was this I cannot tell if its still relevant http://github.com/em-che ed.che@riseup.net
